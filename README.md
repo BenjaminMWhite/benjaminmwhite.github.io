@@ -1,1 +1,1 @@
-# benjaminmwhite.github.io
+# benjaminMWhite.github.io
